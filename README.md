@@ -1,2 +1,2 @@
-# StunninG
+# JupiterDiamond^^
 
